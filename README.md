@@ -1,0 +1,1 @@
+# 3d-ayt-matematik-simulasyon-denemeleri-2024-32
